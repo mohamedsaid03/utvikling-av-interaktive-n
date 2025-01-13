@@ -1,1 +1,0 @@
-# utvikling-av-interaktive-n
